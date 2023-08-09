@@ -6,4 +6,4 @@
 ![image](https://github.com/suzanayesh/Learning-Sprint2Exercises/assets/100838193/5e461505-ef4c-4c7e-b3a9-5b4b75a5cf10)
 ![image](https://github.com/suzanayesh/Learning-Sprint2Exercises/assets/100838193/c452c7b0-0dfd-4828-bd00-e952b0ed20d0)
 ## EX4 :
-![Uploading image.png…]()
+![image](https://github.com/suzanayesh/Learning-Sprint2Exercises/assets/100838193/64b7988b-f8fe-4884-8517-446ca6822ccf)
